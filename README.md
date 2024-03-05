@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on CIBERSEGURIDAD
 - 📫 How to reach me en faceboock
 - 😄 Pronouns: Ruben Anibal Ramos Esteban
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:NINGUNO
 
 <!---
 Rubenre28/Rubenre28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
